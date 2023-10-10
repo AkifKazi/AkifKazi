@@ -1,0 +1,4 @@
+- Hey! my name is Akif
+- I am a 20 year old student pursuing Bachelors in Design
+- My favourite genre is fantasy and adventure, there is something really alluring about fantasy worldbuilding
+- You can reach me through my instagram since I am the most active there, my ID is @lightakatsuki
